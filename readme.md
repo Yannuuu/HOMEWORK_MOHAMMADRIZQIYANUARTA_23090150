@@ -1,1 +1,0 @@
-nama aku yanu
